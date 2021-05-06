@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @DemsOnTop
-- 👀 I’m interested in milfs
+- 👀 I’m interested in python
 - 🌱 I’m currently learning python
-- 💞️ I’m looking to collaborate on porn
+- 💞️ I’m looking to collaborate on things
